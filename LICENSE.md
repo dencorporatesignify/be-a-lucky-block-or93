@@ -1,4 +1,4 @@
-
+be a lucky block Scripts no-ban is the best be a lucky block Script, featuring auto-heal and unlimited stamina. Safe and powerful for all your needs.
 
 
 
